@@ -1,2 +1,0 @@
-# Tjuv och polis.Git
- 
